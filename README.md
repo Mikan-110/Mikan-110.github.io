@@ -5,8 +5,8 @@ Mykan Yuri L. Pranes
 *Favorite Songs*
 - Di Bale Nalang
 - Ikaw Lamang
-- Magbalik
-- Lihim
+- Bagsakan
+- Ligaya
 - Pasensya Ka na
 - 214
   ##
